@@ -1,4 +1,4 @@
-# HOYO-MiX & 黄龄 – TruE (Ed Ver.)
+# HOYO-MiX、黄龄 – TruE (Ed Ver.)
 
 > **歌詞登録ステータス：同期歌詞あり**
 
